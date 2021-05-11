@@ -1,0 +1,9 @@
+Hai 👋👋
+Hello humans I am Viruzhex..
+Here you go don't think I am not a pro just a silly noob... 
+I am here to provide some bots and open sources for you...
+Don't worry about anything I am with you for a more days with you... 
+
+
+
+He gooys here all respositories are edited by [me](https://t.me/JINN_OF_TG) for [this guy](https://t.me/DK369DK). 
