@@ -1,7 +1,7 @@
 
 
 
-He gooys here all respositories are edited by [me](https://t.me/JINN_OF_TG) for [this guy](https://t.me/DK369DK). 
+
 
 HELLO👋👋
 HAI MY DEAR SILLY NOOBS AND PROS.... 
