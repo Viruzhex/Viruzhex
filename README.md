@@ -15,23 +15,3 @@ NOTHING HELP WILL GET YOU HERE.... JUST CAME TO OUR SUPPORT GROUP AND ASK THE QU
                
               THANKS FOR VISITING OUR GITHUB PAGE
               
-### JOIN CHANNEL
-
-
-CHANNEL :- [CLICK HERE](https://t.me/Viruzhex_bots) 
-
-  
-### JOIN GROUP 
-
-
-GROUP :- [CLICK HERE](https://t.me/Viruzhex) 
-    
-     
-      
-       
-      
-     
-    
-   
-  
-
